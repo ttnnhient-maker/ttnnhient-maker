@@ -71,9 +71,8 @@ I specialize in transforming complex, fragmented operations into structured, sca
 
 ## 📬 Contact
 
-- 📧 Email: your.email@example.com  
-- 💼 LinkedIn: https://linkedin.com/in/your-profile  
-- 🌐 Portfolio: https://your-portfolio.example.com  
+- 📧 Email: ttnnhient@gmail.com
+- 💼 LinkedIn: https://www.linkedin.com/in/tran-nhien-16949630b/
 
 ---
 
